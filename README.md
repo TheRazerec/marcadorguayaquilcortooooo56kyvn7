@@ -1,1 +1,0 @@
-# marcadorguayaquilcortooooo56kyvn7
